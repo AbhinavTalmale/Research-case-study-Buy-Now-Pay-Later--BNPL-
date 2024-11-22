@@ -1,4 +1,4 @@
-# Research-case-study-Buy-Now-Pay-Later--BNPL
+# Research-case-study-Buy-Now-Pay-Later-(BNPL)
 
 ### The topic of the study:
 
